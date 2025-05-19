@@ -1,4 +1,4 @@
-![trademark discount deal](https://github.com/user-attachments/assets/7107d665-ffe1-46e2-94b2-e0aae38d96e5)# Trademark Engine Coupon & Promo Codes 2025: Get 50% Discount
+# Trademark Engine Coupon & Promo Codes 2025: Get 50% Discount
 
 Protect your brand identity with a trademark and save while protecting your brand by using the [**Trademark Engine promo**](https://www.trademarkengine.com/https://www.trademarkengine.com/) code.
 
